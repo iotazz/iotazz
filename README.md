@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on **nuffin**<br>🌱 I’m currently learning **stuffs**<br>💬 Ask me about **malware**<br>📫 How to reach me **iotaz on discord or any soical linked on https://slat.cc/aleks**<br>⚡ Fun fact **i think people are weird**
+🔭 I’m currently working on **nuffin**<br>🌱 I’m currently learning **stuffs**<br>💬 Ask me about **malware**<br>📫 How to reach me **iotaz on discord or any soical linked on https://feds.lol/aleks**<br>⚡ Fun fact **i think people are weird**
 
 
 ## 🌐 Socials:
